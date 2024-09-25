@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @squashyGalaxys
-- 👀 I’m interested in webdevelopment 
+- 👀 I’m interested in web development
 - 🌱 I’m currently learning html and css
 - 📫 Dm me or send me an email! linnea19_95@hotmail.com
 - ⚡ Fun fact: I love cats 
