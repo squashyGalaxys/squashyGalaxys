@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @squashyGalaxys aka Linnéa!
 - 👀 I’m interested in web development
 - 🌱 I’m currently learning html and css
-- 📫 Dm me or send me an email! linnea19_95@hotmail.com
+- 📫 Add me on LinkedIn https://www.linkedin.com/in/linnea-schilstr%C3%B6m/ or send me an email! linnea19_95@hotmail.com
 - ⚡ Fun fact: I love cats 
