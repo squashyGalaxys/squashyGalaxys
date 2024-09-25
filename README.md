@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @squashyGalaxys
+- 👋 Hi, I’m @squashyGalaxys aka Linnéa!
 - 👀 I’m interested in web development
 - 🌱 I’m currently learning html and css
 - 📫 Dm me or send me an email! linnea19_95@hotmail.com
